@@ -1,2 +1,1 @@
 Felipe Carlos
-Ethan Duarte
